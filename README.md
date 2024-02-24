@@ -1,2 +1,2 @@
 # admzulfikar97.github.io
-admzulfikar97 pages #1
+admzulfikar97 pages
